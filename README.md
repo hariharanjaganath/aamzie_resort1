@@ -1,0 +1,1 @@
+# aamzie_resort1
